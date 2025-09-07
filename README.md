@@ -1,5 +1,5 @@
-A programmer just for fun.:sparkles: 
-Of course,i am also an ACG fan.:stars: :cat:
+A programmer just for fun.✨
+Of course,i am also an ACG fan.🌟 🐱
 
 <!---
 Yinjony/Yinjony is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
